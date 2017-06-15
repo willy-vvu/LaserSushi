@@ -12,8 +12,6 @@ Combining experimental laser-cut aesthetics with a familiar culinary experience.
 
 ![](LaserSushi4.jpg)
 
-![](LaserSushi5.jpg)
-
 ---
 
 In Collaboration with: Skyler Adams
