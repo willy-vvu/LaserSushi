@@ -16,7 +16,7 @@ Combining experimental laser-cut aesthetics with a familiar culinary experience.
 
 ---
 
-In Collaboration with: Skylar Adams
+In Collaboration with: Skyler Adams
 
 Learning Focus: Culinary Experiences, Food Presentation, Edible Design, Cinematography, Video Editing, Motion Graphics
 
