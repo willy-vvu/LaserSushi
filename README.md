@@ -1,10 +1,10 @@
 # Laser Sushi
 
-![](LaserSushi1.jpg)
-
 Combining experimental laser-cut aesthetics with a familiar culinary experience.
 
 [Watch the Video](https://www.youtube.com/watch?v=EK5aldxQQDg)
+
+![](LaserSushi1.jpg)
 
 ![](LaserSushi2.jpg)
 
